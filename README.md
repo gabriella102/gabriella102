@@ -8,3 +8,7 @@ meu nome é Gabriella ferreira Silva
 - Estou estudando na alura
 - Estou me desenvolvendo na linguagem javaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos 
+
+você pode entrar em contato comigo 💌
+
+gabriellaferreirasilva962@gmail.com
